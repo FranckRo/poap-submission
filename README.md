@@ -1,5 +1,5 @@
 # poap-submission
-Submission POAP
+Submission POAP (Discord Username : JiminyCrypto#9253)
 
 Submission I Voted : 
 
